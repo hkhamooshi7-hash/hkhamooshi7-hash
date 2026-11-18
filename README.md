@@ -1,4 +1,4 @@
-# H-K::: {align="center"}
+# H-K::: 
 # HASSAN
 
 ### Creative Designer · Visual Communication · Art Direction
